@@ -1,4 +1,4 @@
-## 🌟 Seja bem vindo(a) ao meu perfil! 🌟 
+## 🌟 Welcome to my GitHub! 🧙‍♀‍🌟 
 
  <div>
   <a href="https://github.com/amandasalles">
